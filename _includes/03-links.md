@@ -1,1 +1,1 @@
-[The Worst Social Media Behemoth to Exist](www.linkedin.com/in/karenge)
+[The Worst Social Media Behemoth to Exist](https://www.linkedin.com/in/karenge)
